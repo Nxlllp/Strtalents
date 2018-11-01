@@ -1,0 +1,2 @@
+# Strtalents
+そのまんま東
